@@ -1,13 +1,12 @@
 ## Kenneth Crasto
 
-## FAVOURITE :  
-
-## HOBBIES
+<img src="http://wallpapercave.com/wp/yxedRFW.jpg" width="400">
 
 
 
- 
-**_ THIS WEBSITE IS FULLY DEVELOPED and all contents are corrected _**
+
+
+**_ THIS WEBSITE IS UNDER CONSTRUCTION_**
 
 
 `
