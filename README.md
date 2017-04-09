@@ -1,9 +1,9 @@
 ## Kenneth Crasto  
 <img src="http://www.islamiclife.com/userfiles/images/2013/1424_bed.jpg" width="400">
 
-##FAVOURITE : Making Susu on the bed. 
+## FAVOURITE : Making Susu on the bed. 
 
-##HOBBIES
+## HOBBIES
 
 1. Making susu on bed
 1. Eating shit with Nathan Costa
