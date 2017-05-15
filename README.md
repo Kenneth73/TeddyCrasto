@@ -1,7 +1,6 @@
-## Kenneth Crasto
+## TEDDY CRASTO
 
 <img src="http://wallpapercave.com/wp/yxedRFW.jpg" width="400">
-
 
 
 
