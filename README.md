@@ -7,9 +7,8 @@
 <img src="http://wallpapercave.com/wp/yxedRFW.jpg" width="400">
 
 
+##### CHECK OUT SOME BEAUTIFUL AQUASCAPES. VIEW ME ON GITHUB
 
 
 **_ THIS WEBSITE IS UNDER CONSTRUCTION_**
 
-
-`
